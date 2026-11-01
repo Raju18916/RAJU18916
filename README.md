@@ -29,4 +29,4 @@
 - Embedded Systems
 
 ## Connect
-- LinkedIn: https://www.linkedin.com/in/raju-a-921632448/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2Fhx9qfcJTHiz1ClZwZyDzw%3D%3D
+- LinkedIn: https://www.linkedin.com/in/raju-a-921632448
